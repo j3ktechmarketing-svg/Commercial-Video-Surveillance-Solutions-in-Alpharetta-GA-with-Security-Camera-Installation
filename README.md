@@ -102,3 +102,75 @@ In an increasingly uncertain environment, investing in advanced surveillance sol
 
 Upgrade your security infrastructure today with future-ready surveillance systems that protect your people, property, and performance.
 
+## Services We Offer
+
+| Services |
+|---|
+| Managed IT Services |
+| Managed Wireless Network Services |
+| Data Center Services |
+|Structured Cabling Services|
+|Access Control Services|
+|Video Surveillance Services|
+
+---
+
+## Locations We Serve
+
+| Locations |
+|---|
+| Atlanta |
+| Alpharetta |
+| Marietta |
+| Sandy Springs |
+| Roswell |
+| Decatur |
+| Johns Creek |
+| Duluth |
+|Lawrenceville	  |
+| Smyrna |
+| Woodstock |
+|Kennesaw  |
+| East Point |
+| Peachtree Corners |
+|Norcross |
+| Conyers Tucker |
+|Stone Mountain	|
+| Mableton |
+| Lithonia |
+|Doraville  |
+|Chamblee  |
+|Brookhaven  |
+|Vinings  |
+|Fairburn  |
+|Austell |
+|Perry	 |
+|Warner Robbins	|
+|Macon |
+
+
+---
+
+## Industries We Serve
+
+| Industries |
+|---|
+| Healthcare |
+| Financial Services |
+| Education |
+| Legal |
+| Government and Public|
+| Retail |
+| Manufacturing and Industrial |
+| Hospitality |
+| Real Estate and Property Management |
+| Technology and Software |
+| Non-Profit Organizations |
+| Real Estate and Property Management |
+| Technology and Software |
+| Transportation and Logistics |
+| Construction and Engineering |
+| Telecommunications |
+| Media Advertising |
+
+
